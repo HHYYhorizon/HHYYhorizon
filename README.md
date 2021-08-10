@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HHYYhorizon
 - 👀 I’m interested in feeding cats[doge]
 - 🌱 I’m currently learning how to be a teacher
-- 💞️ Well, I'm not be prepared on this [LOL]
+- 💞️ Well, I'm not be prepared for this [LOL]
 - 📫 You can reach me → giljchu.main@outlook.com or WeChat account 'DP201567'
 
 <!---
